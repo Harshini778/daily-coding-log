@@ -1,1 +1,1 @@
-My GitHub coding journey starts today! 
+My GitHub coding journey
